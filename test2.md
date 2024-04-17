@@ -1,6 +1,8 @@
 # Marseille
 
 - Le bon temps mais risque de vol
+- Un ami s'est fait voler sa moto
+- Pas bcp de choses à faire, mais peut visiter tout le sud de la France
 
 # Tanger
 
