@@ -13,4 +13,6 @@
 # Suisse
 
 - Le bon temps et rien à dire
+- Paysage magnifique
+- Si j'y vais, je dois penser à vendre un bras
 
